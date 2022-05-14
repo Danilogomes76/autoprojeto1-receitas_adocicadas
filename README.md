@@ -9,3 +9,5 @@ Foram utilizados:
 Instagram: https://www.instagram.com/receitas_adocicada/
 
 Facebook: https://www.facebook.com/ReceitasAdocicadas/
+
+Spoiler: https://gyazo.com/d15a328a8f613a59c5bb2f8e6287dfaf
